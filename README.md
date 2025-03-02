@@ -1,2 +1,0 @@
-# CCPROG2-
-CCPORG  MP
